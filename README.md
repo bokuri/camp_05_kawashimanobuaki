@@ -1,1 +1,0 @@
-# camp_05_kawashimanobuaki
